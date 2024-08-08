@@ -12,7 +12,8 @@ Stay up-to-date with our newest releases, ensuring your website is always equipp
 
 Get your access now! Onetime Checkout – Lifetime Access!
 
-[**Get Access Now!**](https://themeimpact.com/product/premium-membership-lifetime/)
+[**Get Lifetime Access Now!**](https://themeimpact.com/product/premium-membership-lifetime/)
 
 Homepage: [https://themeimpact.com](https://themeimpact.com)
+
 Pinterest: [https://pinterest.com/themeimpactcom](https://pinterest.com/themeimpactcom)
