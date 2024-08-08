@@ -17,4 +17,7 @@ Get your access now! Onetime Checkout – Lifetime Access!
 Homepage: [https://themeimpact.com](https://themeimpact.com)
 
 Pinterest: [https://pinterest.com/themeimpactcom](https://pinterest.com/themeimpactcom)
+
 About Me: [https://about.me/themeimpact](https://about.me/themeimpact)
+
+Gitlab: [https://gitlab.com/creative.themeimpact](https://gitlab.com/creative.themeimpact)
